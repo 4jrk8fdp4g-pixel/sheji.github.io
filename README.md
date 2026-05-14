@@ -1,2 +1,0 @@
-# sheji.github.io
-biyesheji
